@@ -1,1 +1,0 @@
-# NK-Security-Hackathon-2025
